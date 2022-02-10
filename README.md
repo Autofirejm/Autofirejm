@@ -11,3 +11,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Fun facts are not fun
 - :octocat:
+if you look down here ⬇ i have some projects, 2 by me, 2 by Vercte/lolecksdeehaha
